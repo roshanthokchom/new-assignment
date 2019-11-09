@@ -1,1 +1,1 @@
-My practice and works that I have completed so far
+My practice and works and projects that I have completed so far
